@@ -1,3 +1,3 @@
 # resources
 
-[YouTube](https://www.youtube.com/@John-y1q6l)
+[YouTube](https://www.youtube.com/@browntruck246)
